@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning TI
 - 💞️ I’m looking to collaborate on I just have a girlfriend
 - 📫 How to reach me smorais.07
-- 😄 Pronouns: hetero
+- 😄 Pronouns: Desempregado
 - ⚡ Fun fact: atropelei um ciclista idoso
 
 <!---
